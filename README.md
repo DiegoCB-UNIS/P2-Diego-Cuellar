@@ -8,6 +8,4 @@ Aqui se mostraran los siguientes ejercicios del parcial 2. Es probable que los u
 
 **_Serie 2:_** https://youtu.be/KpcCLOmf7tY
 
-**_Serie 3:_** En proceso
-
 **_Serie 4:_** En proceso
